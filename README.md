@@ -37,6 +37,10 @@ a unique asset.
 users do not always have to own works built by ARBEEV to be part.
 but if you want to have it, go ahead and be the owner. 
 
+Those who already have a complete building are definitely more interesting and we don't the building blocks yet.
+
+
+
 Dvn, don't change this article yet.
 
 I will continue to edit and revise, update, it's better to wait
