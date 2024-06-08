@@ -29,16 +29,11 @@ must include benefits for society in the long term.
 not only for the ARBEEV community but for various functions. 
 "I won't write here first"
 
-our goal is not to take votes to be the winner. but on what will be needed. Therefore, we will do this briefly and not publish it on social media.
-
 # NFT
 a unique asset.
 
 users do not always have to own works built by ARBEEV to be part.
 but if you want to have it, go ahead and be the owner. 
-
-Those who already have a complete building are definitely more interesting and we don't the building blocks yet.
-
 
 
 Dvn, don't change this article yet.
