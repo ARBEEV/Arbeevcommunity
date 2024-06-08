@@ -23,6 +23,20 @@ The goals of each blockchain are also different. Early reading The language reso
 
 ARBEEV was formed based on a love of art and motivation as a space for developers, artists, music, video artists, and even poets who cannot be separated from technology and need each other.
 
+# tokenomics
+coin 
+must include benefits for society in the long term.
+not only for the ARBEEV community but for various functions. 
+"I won't write here first"
+
+our goal is not to take votes to be the winner. but on what will be needed. Therefore, we will do this briefly and not publish it on social media.
+
+# NFT
+a unique asset.
+
+users do not always have to own works built by ARBEEV to be part.
+but if you want to have it, go ahead and be the owner. 
+
 Dvn, don't change this article yet.
 
 I will continue to edit and revise, update, it's better to wait
