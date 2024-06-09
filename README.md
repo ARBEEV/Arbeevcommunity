@@ -29,18 +29,6 @@ must include benefits for society in the long term.
 not only for the ARBEEV community but for various functions. 
 "I won't write here first"
 
-if there are differences of opinion that are currently occurring 
-
-A : give advice to B
-
-B : did not listen to advice A
-
-WB and SN suggest we listen to both and create a solution.
-
-However, the L2 design created by WB and SN only works with 1 method
-unlike in L2 of Bit and E 
-which has various uses
-
 # NFT
 a unique asset.
 
