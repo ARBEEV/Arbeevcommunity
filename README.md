@@ -35,26 +35,6 @@ a unique asset.
 users do not always have to own works built by ARBEEV to be part.
 but if you want to have it, go ahead and be the owner. 
 
-# vision and support
-ARBEEV was formed out of friendship and was just for personal entertainment at first
-
-one of the buildings w.. received an injection of funds amounting to ...m 
-if I'm not mistaken for the function in ..., wallet. UI/UX only
-
-but one of us still holds his commitment 
-and chose to withdraw.
-
-1. the reason
-
-We always appreciate someone's good intentions in providing funds through ... not because of VC but we can't afford to be given responsibility with such a large amount by someone.
-
-Maybe someone saw it due to some factors from one of the people on our team. 
-
-which makes someone give an injection of funds through ... 
-
-whether because of the moment our team was formed or something else
-
-
-Dvn, don't change this article yet.
+Dvn, don't change this yet.
 
 I will continue to edit and revise, update, it's better to wait
