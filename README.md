@@ -48,6 +48,12 @@ and chose to withdraw.
 
 We always appreciate someone's good intentions in providing funds through ... not because of VC but we can't afford to be given responsibility with such a large amount by someone.
 
+Maybe someone saw it due to some factors from one of the people on our team. 
+
+which makes someone give an injection of funds through ... 
+
+whether because of the moment our team was formed or something else
+
 
 Dvn, don't change this article yet.
 
