@@ -83,7 +83,7 @@ because of good things.
 not necessarily heard well
 
 # As time goes by the team increases
-starting from Someone who says more than 12 years of experience in crypgraphy 
+starting from Someone who says more than 12 years of experience in 
 
 he just provides guidance on blockchain philosophy and provides many moments. community creation 
 
