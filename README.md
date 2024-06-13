@@ -94,7 +94,7 @@ However, he is not from our team and cannot return to help.
 
 Our team doesn't have the same skills.
 
-Even though there are some people who do not have skills, we still need and embrace them.
+Even though there is person who doesn't have the skills, we still need and embrace them.
 
 Even so, he was very helpful and we did not consider him a burden 
 
